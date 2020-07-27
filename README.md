@@ -1,0 +1,1 @@
+Six satellites in orbit
